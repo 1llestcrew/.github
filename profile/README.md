@@ -3,8 +3,7 @@
 <p align="center">
 
   ### 1LLEST CREW
-  1LLEST CREW
-  embrace your illest potential
+  embrace your inspiration
   
 </p>
 
